@@ -1,3 +1,3 @@
 
-Randome posts.
+Random posts.
 
